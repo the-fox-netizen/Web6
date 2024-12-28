@@ -1,4 +1,4 @@
-# hey this is surya working with dattu! Cool
-- lets have coffee
-- and later a pizza
-- hey i'm surya
+# hlw I'm surya working Collabrating with dattu! Nicee
+- Let's have tea
+- and later a croissant
+- and by the way this is Surya
